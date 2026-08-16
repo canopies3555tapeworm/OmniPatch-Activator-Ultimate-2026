@@ -1,0 +1,2 @@
+# OmniPatch-Activator-Ultimate-2026
+OmniPatch – Unlock premium AI features and bypass usage limits for free.
